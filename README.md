@@ -11,7 +11,7 @@ NOTE: Do not leave spaces in zip files' name, if not you will get errors....
 
 #Download the below file. 
 
-      Enjoy!
- CHANDU @ GEEKOFIA 2017
+     
+                                 CHANDU @ GEEKOFIA 2017
 
 
